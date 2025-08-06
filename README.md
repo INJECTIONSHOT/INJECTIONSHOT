@@ -1,12 +1,12 @@
 <div id="header" align="left">
 
-*y estás , oh . tan lejos de mí , oh .*
+*if i get too close , and im not how you hoped ,*
 
 ![](https://file.garden/aIrFR9W4twp1wUOQ/Untitled46_20250805080125.png)
 
 <div id="header" align="right">
 
-*te sigo pensando . me canso , llorando .*
+*forgive my northern attitude ,  oh , i was raised out in the cold*
 
 
 <div id="ata" align="center">
