@@ -11,4 +11,4 @@
 
 <div id="ata" align="center">
 
-[ata](https://s0lstic.atabook.org/) 
+[ata](https://s0lstic.atabook.org/)‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ ‎[straw](https://trafalgar-d.straw.page)
