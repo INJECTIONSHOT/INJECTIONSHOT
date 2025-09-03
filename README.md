@@ -1,12 +1,9 @@
 <div id="header" align="left">
 
-*if i get too close , and im not how you hoped ,*
+*this is just to fill until i have an actual image lol*
 
-![](https://file.garden/aIrFR9W4twp1wUOQ/Untitled46_20250805080125.png)
+![](https://file.garden/aIrFR9W4twp1wUOQ/tumblr_c93e0072d98ee401a89d78b31016b7d0_d619b5da_640.gif)
 
-<div id="header" align="right">
-
-*forgive my northern attitude ,  oh , i was raised out in the cold*
 
 
 <div id="ata" align="center">
