@@ -9,3 +9,5 @@
 <div id="ata" align="center">
 
 [ata](https://s0lstic.atabook.org/)‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ ‎[straw](https://trafalgar-d.straw.page)
+
+‎![](https://komarev.com/ghpvc/?username=your-github-username&label=WANTED+BOUNTY&color=lightgrey)
