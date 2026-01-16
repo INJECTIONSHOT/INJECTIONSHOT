@@ -11,7 +11,3 @@
 [ata](https://lawzos.atabook.org/)‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ ‎[straw](https://lawzo.straw.page) ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎ ‎[my art](https://zol.straw.page)
 
 ‎![](https://komarev.com/ghpvc/?username=your-github-username&label=WANTED+BOUNTY&color=lightgrey)
-
-![](https://file.garden/aIrFR9W4twp1wUOQ/Screenshot_20251224-105039%20(1).png)
-
-leave me alone. there's no possible way for your "friend" to have found me. you've made me beyond paranoid that i can't even interact with people outside my friend group anymore, I want absolutely nothing to do with you. can't you just let it rest? i almost forgot about you, it's been months, why reach out now. i would've forgiven you if you weren't a fucking cyberstalker. again. just leave me alone. if you're truly sorry forget this all happened.
