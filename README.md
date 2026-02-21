@@ -10,4 +10,4 @@
 
 [ata](https://lawzos.atabook.org/)‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ ‎[straw](https://lawzo.straw.page)
 
-‎![](https://komarev.com/ghpvc/?username=your-github-username&label=WANTED+BOUNTY&color=lightgrey)
+‎![](https://komarev.com/ghpvc/?username=your-github-username&label=⁽⁠⁽⁠ଘ⁠ଓ⁠⁾⁠⁾&color=008080)
